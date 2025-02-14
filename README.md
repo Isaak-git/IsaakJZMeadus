@@ -1,2 +1,0 @@
-# IsaakJZMeadus
-Personal Website
